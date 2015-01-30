@@ -1,2 +1,0 @@
-Schulerfolg und Bildungskarrieren sind in hohem Maße von erfolgreich angeeigneter Schriftsprache abhängig. 
-Aufbauend auf die Vorlesung "Schriftspracherwerb" sollen im Seminar didaktisch-methodische Konzepte des Schriftspracherwerbs im Anfangsunterricht kriteriengeleitet untersucht und diskutiert werden. 
